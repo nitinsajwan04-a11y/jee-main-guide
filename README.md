@@ -1,4 +1,5 @@
 How to prepare for JEE Main effectively ?
+
 Preparing effectively for the JEE Main requires a combination of the right strategy, consistent practice, and strong conceptual understanding. While the exam is competitive, a well-planned approach can significantly improve your chances of scoring well.
 
  1. Build Strong Fundamentals
